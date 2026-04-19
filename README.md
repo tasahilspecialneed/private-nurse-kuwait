@@ -42,7 +42,7 @@ Kuwait (All Areas Covered)
 
 ## 🔗 Keywords
 
-Private Nurse Kuwait, Home Healthcare Kuwait, Disability Care Kuwait, Elderly Care Kuwait, Post Surgery Care Kuwait
+Private Nurse Kuwait, Home Healthcare Kuwait, Home Care Kuwait, Elderly Care Kuwait, Home Nurse Kuwait
 
 ---
 
